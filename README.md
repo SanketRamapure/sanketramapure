@@ -1,4 +1,4 @@
-[![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsM...)](https://fiverr-res.cloudinary.com/images/q_auto,f_auto/gigs/68383811/original/2fd1786206ee8bca6dc0f520149d77cb4f361db6/do-your-python-assignments.png)
+[![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsM...)](https://miro.medium.com/max/1000/1*tTvcyTbjYiN5maUZILRpTQ.png)
 <h1 align="center">Hi 👋, I'm Sanket Ramapure</h1>
 <h3 align="center">A passionate Data Analyst from India</h3>
 
